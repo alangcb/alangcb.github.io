@@ -9,7 +9,7 @@ Estoy muy nervioso ya que no he dormido mucho son las 4:14 am en Chile y he **to
 3. Escribir esto sera mi **refugio** donde derrochare mis emociones y sentimientos a más no poder **para poder sanarme internamente y asi crecer mucho :)**
 
 
-###H3 Atentamente 
+###H3 Atentamente.⋅⋅
 ##H2 **Alan Castro Bello** 
 
 **7 de ABRIL del 2019 en la mañana**
